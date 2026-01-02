@@ -4,7 +4,7 @@
 📍 Delhi / New Delhi, India  
 📞 +91 7004477637  
 ✉️ afsarali509@gmail.com  
-🌐 GitHub: (add link) | LinkedIn: (add link)
+🌐 LinkedIn: (https://www.linkedin.com/in/afsar-ali-98088210a
 
 ---
 
